@@ -4,4 +4,4 @@
 🇧🇷 brasileiro
 ✍🏻 estudante
 
-![](https://media.tenor.com/A21mkmNo3XwAAAAd/stevie-g-donny-g.gif)
+![](https://media.tenor.com/xDAsmBplzzgAAAAd/mc-hariel-hariel.gif)
