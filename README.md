@@ -1,6 +1,6 @@
 📿 FÉ EM DEUS.
 🚴‍♂️ ​gosto de esportes
-🎮 gosto de tecnologia
+🏍️ gosto de moto
 🇧🇷 brasileiro
 ✍🏻 estudante
 
